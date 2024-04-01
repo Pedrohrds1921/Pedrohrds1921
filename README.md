@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 Atualmente trabalho na area corporativa com no setor de contas a pagar porem em transição de carreira pra Back-end<br>
+🔭 Atualmente trabalho na area corporativa no setor de contas a pagar porem em transição de carreira pra Back-end<br>
 
 
 ## 🌐 Socials:
